@@ -1,0 +1,2 @@
+# Live
+"Descopera Romania impreuna cu noi !" - RTravel.ro Prin circuitele si programele turistice oferite turistilor, RTravel, isi propune sa promoveze cultura, obiceiurile si obiectivele turistice ale Romaniei. Sloganul " Descopera Romania, alaturi de noi !", se adreseaza atat turistilor romania care vor sa descopere si sa se bucure de frumusetile atat culturale cat si turistice ale Romaniei, dar si turistilor straini care viziteaza &lt;&lt; Romania Pitoreasca >>
